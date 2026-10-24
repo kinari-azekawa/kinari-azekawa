@@ -1,3 +1,5 @@
+# $\color{#EBC8FF}\textsf{"Hey, don’t leave me in the dark; don’t you have more to share?"}$
+
 <img width="1461" height="109" alt="image" src="https://github.com/user-attachments/assets/02a1a906-6200-4d66-94b2-e08adb4017f9" />
 
 
