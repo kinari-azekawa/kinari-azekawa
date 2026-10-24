@@ -11,6 +11,7 @@ $\color{#EBC8FF}\textsf{BODILY 19}$
 $\color{#EBC8FF}\textsf{Not very talkative unless it's to friends, especially those I'm close to. You may talk to me, but do not expect me to hold a conversation well.}$
 
 $\color{#EBC8FF}\textsf{C+H is completely fine with me. I don't mind people hanging out with me, and would rather you not be scared.}$
+$\color{#EBC8FF}\textsf{You don't need to ask to C+H, as I may take too long to answer. You need not to hesitate.}$
 
 <img width="100" height="239" alt="image" src="https://github.com/user-attachments/assets/d4918f02-9b22-46e5-aae9-a199cfc30d80" />
 
