@@ -1,3 +1,7 @@
+<img width="1461" height="109" alt="image" src="https://github.com/user-attachments/assets/02a1a906-6200-4d66-94b2-e08adb4017f9" />
+
+
+
 $\color{#EBC8FF}\textsf{KINARI}$
 
 $\color{#EBC8FF}\textsf{HE/THEY/IT}$
