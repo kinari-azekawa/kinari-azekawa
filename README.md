@@ -12,7 +12,7 @@ $\color{#EBC8FF}\textsf{BODILY 19}$
 
 $\color{#EBC8FF}\textsf{Not very talkative unless it's to friends, especially those I'm close to. You may talk to me, but do not expect me to hold a conversation well.}$
 
-$\color{#EBC8FF}\textsf{C+H is completely fine with me. I don't mind people hanging out with me, and would rather you not be scared. There's some cudcomf involved.}$
+$\color{#EBC8FF}\textsf{C+H is completely fine with me. I don't mind people hanging out with me, and would rather you not be scared. There's some cudcomf}$ $\color{#EBC8FF}\textsf{involved as well.}$
 $\color{#EBC8FF}\textsf{You don't need to ask to C+H, as I may take too long to answer. You need not to hesitate.}$
 
 $\color{#EBC8FF}\textsf{I tend to be more active when the body's stressed. If I'm here, there's a likely chance of anxiety.}$
