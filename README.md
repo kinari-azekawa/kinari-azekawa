@@ -21,3 +21,13 @@ $\color{#EBC8FF}\textsf{I tend to be more active when the body's stressed. If I'
 
 
 <img width="349" height="64" alt="image" src="https://github.com/user-attachments/assets/1d7757a4-2186-4f16-9d9f-eae8998192f0" />
+
+# $\color{#8888CC}\textsf{"How nice it must be, for you to have music to call your own..."}$
+
+$\color{#8888CC}\textsf{MAFUYU}$
+
+$\color{#8888CC}\textsf{Any pronouns. I'm apathetic to gender.}$
+
+$\color{#8888CC}\textsf{I wanted to make my own github, but we already have enough, so I'm adding myself onto Kinari's.}$
+
+$\color{#8888CC}\textsf{I'm closer to pre-running away Mafuyu.}$
