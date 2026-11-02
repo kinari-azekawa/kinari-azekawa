@@ -31,3 +31,6 @@ $\color{#8888CC}\textsf{Any pronouns. I'm apathetic to gender.}$
 $\color{#8888CC}\textsf{I wanted to make my own github, but we already have enough, so I'm adding myself onto Kinari's.}$
 
 $\color{#8888CC}\textsf{I'm closer to pre-running away Mafuyu.}$
+
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/08497367-a778-4141-b749-d791d37c8170" />
+
