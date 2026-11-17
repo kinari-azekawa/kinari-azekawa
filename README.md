@@ -18,19 +18,3 @@ $\color{#EBC8FF}\textsf{You don't need to ask to C+H, as I may take too long to 
 $\color{#EBC8FF}\textsf{I tend to be more active when the body's stressed. If I'm here, there's a likely chance of anxiety.}$
 
 <img width="100" height="239" alt="image" src="https://github.com/user-attachments/assets/d4918f02-9b22-46e5-aae9-a199cfc30d80" />
-
-
-<img width="349" height="64" alt="image" src="https://github.com/user-attachments/assets/1d7757a4-2186-4f16-9d9f-eae8998192f0" />
-
-# $\color{#8888CC}\textsf{"How nice it must be, for you to have music to call your own..."}$
-
-$\color{#8888CC}\textsf{MAFUYU}$
-
-$\color{#8888CC}\textsf{Any pronouns. I'm apathetic to gender.}$
-
-$\color{#8888CC}\textsf{I wanted to make my own github, but we already have enough, so I'm adding myself onto Kinari's.}$
-
-$\color{#8888CC}\textsf{I'm closer to pre-running away Mafuyu.}$
-
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/08497367-a778-4141-b749-d791d37c8170" />
-
